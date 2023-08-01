@@ -1,0 +1,2 @@
+# ResellBuddy
+Privacy Policy
